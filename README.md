@@ -1,4 +1,4 @@
-<img src="https://github.com/BARBAR69SLOT/BARBAR69SLOT/assets/169041922/5f8ab748-b5e3-4f09-be9f-e9cf3e0025c6" style="height:170px; width:450px" alt="https://s.id/sky-chips" />
+<img src="https://github.com/BARBAR69SLOT/BARBAR69SLOT/assets/169041922/5f8ab748-b5e3-4f09-be9f-e9cf3e0025c6" style="height:140px; width:450px" alt="https://s.id/sky-chips" />
 
 
 BARBAR69 adalah satu-satunya web judi online terkemuka di Indonesia yang sangat cocock bagi para member baru yang ingin membuktikan scatter hitam di permainan PG SOFT yaitu mahjong ways 1 dan 2. Dengan puluhan ribu member aktif tiap-tiap harinya, BARBAR69 menawarkan pengalaman bermain yang luar biasa bersama beragam permainan menarik layaknya , slot online, casino, dan masih banyak lagi. Dan salah satu <a href="https://theclickdigit.com/produk/slot-bet-100/">slot bet 100</a>  nomor 1 di indonesia
