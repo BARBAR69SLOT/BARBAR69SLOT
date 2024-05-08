@@ -22,3 +22,5 @@ Tim perlindungan pelanggan BARBAR69 siap menunjang Anda 24 jam sehari, 7 hari se
 
 Daftar Sekarang dan Mulai Menang Bersama BARBAR69!
 Jangan lewatkan peluang untuk berhimpun bersama BARBAR69 dan merasakan pengalaman bermain yang tak tertandingi. Segera daftar dan mulai menang bersama BARBAR69 hari ini dan menjadi salah satu <a href="https://sukses168.store/">sukses168</a> 
+
+<meta name="google-site-verification" content="Cigy9DdCPXWL3gmyND9jse2Nut_npPK-ugnYLYYnzxw" />
